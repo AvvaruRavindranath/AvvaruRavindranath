@@ -16,8 +16,8 @@ Here are some ideas to get you started:
 -->
 
 - 📫 How to reach me: ravindranath4363@gmail.com
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm Fresher
+- ⚡ Pronouns: Ravindra
+- 😄 Fun fact: I'm Fresher
 ---
 ### :hammer_and_wrench: Languages and Tools :
 
